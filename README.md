@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Web. dev & related to tech**
 
-- 📫 How to reach me **parthrastogi12331@gmail.com**
+- 📫 How to reach me **utkarshsharma1in100@gmail.com**
   
 - 👨‍💻 For more info, visit [Linkedin](https://www.linkedin.com/in/utkarsh-sharma-83883a216/)
 </p>
